@@ -24,5 +24,5 @@ An **Aspiring AI/ML Engineer & Data Analyst** with a strong foundation in comput
 * **Vice Chairperson, NSS VIT (2025-2026):** Coordinated student volunteers and led social outreach initiatives.
 
 ## 📫 Connect with Me
-* **LinkedIn:** www.linkedin.com/in/arasu-s-a65ba428
+* **LinkedIn:** www.linkedin.com/in/arasu-s-a65ba4286
 * **Email:** arasuselvaraj0326@gmail.com
