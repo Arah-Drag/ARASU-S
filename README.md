@@ -26,3 +26,4 @@ An **Aspiring AI/ML Engineer & Data Analyst** with a strong foundation in comput
 ## 📫 Connect with Me
 * **LinkedIn:** www.linkedin.com/in/arasu-s-a65ba4286
 * **Email:** arasuselvaraj0326@gmail.com
+* **GitHub:** https://github.com/Arah-Drag
